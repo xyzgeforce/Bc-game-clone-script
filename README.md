@@ -22,7 +22,7 @@ The BC Game Clone Script is a comprehensive solution for building an online casi
 
 ## Live Demo
 
-Experience the platform first-hand by visiting our [live demo](http://democasino.online/).
+Experience the platform first-hand by visiting our [bc game clone script](http://democasino.online/).
 
 ## Support
 
