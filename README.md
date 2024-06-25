@@ -32,7 +32,7 @@ For any queries or support, you can reach out to me on:
 
 ## Purchase
 
-Interested in purchasing the script? Visit our webshop: [Bc game clone script](https://buycasinoscripts.com/product/bc-game-clone-casino-script/)
+Interested in purchasing the script? Visit our webshop: [Bc game clone script](https://casinoscripts.shop/product/bc-game-clone-casino-script/)
 
 ## License
 
