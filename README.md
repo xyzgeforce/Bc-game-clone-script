@@ -27,7 +27,7 @@ Experience the platform first-hand by visiting our [LIVE DEMO](http://democasino
 ## Support
 
 For any queries or support, you can reach out to me on:
-- **Telegram**: [t.me/script017](https://t.me/script017)
+- **[Telegram](https://t.me/athenian)
 - **Discord**: [discord.gg/cryptocasino](https://discord.gg/cryptocasino)
 
 ## Purchase
